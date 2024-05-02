@@ -29,3 +29,4 @@ Just here for fun! 😉
 ![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=Swerveplays&layout=compact&theme=dark)
 
 - 📫 How to reach me trxpz5m on discord
+- Thanks for checking me out!
